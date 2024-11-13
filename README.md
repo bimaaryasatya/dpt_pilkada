@@ -1,1 +1,0 @@
-# dpt_pilkada
